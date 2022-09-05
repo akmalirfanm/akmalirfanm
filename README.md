@@ -1,2 +1,2 @@
 Akmal Irfan Maulana <br>
-Kaga bisa ngoding gua, need tutor blay
+Kaga bisa ngoding gua, serius
