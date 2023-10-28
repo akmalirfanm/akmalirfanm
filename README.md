@@ -1,2 +1,1 @@
-Akmal Irfan Maulana <br>
-Halooo.... udah gitu aja
+I'm designing game 'cause i'm bad at designing my life
