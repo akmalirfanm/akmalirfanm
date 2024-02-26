@@ -1,1 +1,1 @@
-I'm designing game 'cause i'm bad at designing my life
+Currently Learning Product Designer and Project Management
